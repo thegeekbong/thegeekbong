@@ -5,7 +5,7 @@
 ##### A little about myself :bowtie:
 
 I love to work with **machines** and watch them *learn* new patterns in a **supervised/unsupervised** manner. 
-I am a IT undergraduate from [GGSIP University](http://ipu.ac.in/) and is looking for new opportunities to work in the field of **Arificial Intelligence**. If you want to connect with me, the details are given below. Cheers! :tada:
+I am an IT undergraduate from [GGSIP University](http://ipu.ac.in/) and is looking for new opportunities to work in the field of **Arificial Intelligence**. If you want to connect with me, the details are given below. Cheers! :tada:
 
 I love to create a change and stand for the right thing. I wish to bring peace and harmony in this world with my skills and help man answers some peculiar questions.  :pray:
 
